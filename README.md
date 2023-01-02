@@ -1,0 +1,1 @@
+## waa first time github wax ku push gareeyo
